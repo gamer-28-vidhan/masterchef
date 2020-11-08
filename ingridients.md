@@ -1,0 +1,1 @@
+1 cup milk, 2 teaspoons tea powder, 1/4 cup of water, 3 teaspoons sugar
